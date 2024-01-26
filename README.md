@@ -5,7 +5,7 @@
 ⚡ Fun facts:
 - Originally from Lebanon, will never say no to hummus & tabbouleh
 - Swimming, kayaking, and running keep me sane
-- Fan of real estate investing and have two rental properties
+- Fan of real estate investing, stock trading, and novel crypto projects
 - Enjoy watching documentaries that offer new perspectives/learning
 </p>
 
